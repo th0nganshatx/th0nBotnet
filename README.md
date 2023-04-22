@@ -11,4 +11,4 @@ Penyalahgunaan dan Kerusakan Apapun Resiko Di Tanggung Masing2 Pengguna, Selamat
 <p>
 PASSWORD TOOL : th0n
 </p>
-<a href="https://www.youtube.com/channel/UC0k77Gwzx_Sg9OalIu3-d_A">Subscribe</a>
+<a href="https://www.youtube.com/channel/UC0k77Gwzx_Sg9OalIu3-d_A">New Channel</a>
